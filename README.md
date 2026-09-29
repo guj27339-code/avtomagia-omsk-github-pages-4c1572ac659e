@@ -1,0 +1,1 @@
+# avtomagia-omsk-github-pages-4c1572ac659e
